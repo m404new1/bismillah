@@ -1,4 +1,4 @@
 # bismillah
-tidak ada yang menyenangkan disini boss,
-pergilah. .
-Repositori Baru
+SELAMAT DATANG DI AKUN ME,
+
+SEMOGA SELAMAT SAMPAI TUJUAN :D
